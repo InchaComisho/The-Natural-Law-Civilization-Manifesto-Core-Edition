@@ -254,7 +254,7 @@ Closing Statement
 
 The Natural Law Civilization is not a dream.
 
-It is the only structurally viable future.
+It is a structurally viable model for civilization's future.
 
 The question is not whether this model works —
 it is whether humanity awakens in time to adopt it.

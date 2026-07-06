@@ -2,6 +2,8 @@
 
 Restoring Earth Through Harmonic Science and Bio-Synthesis
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 Author: Master (InchaComisho / InchaComusho)
 
 ⸻

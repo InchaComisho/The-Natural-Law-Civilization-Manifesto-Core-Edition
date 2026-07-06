@@ -1,5 +1,7 @@
 # 自然法則文明宣言 — Core Edition
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 ## 調和科学とバイオシンセシスによる地球再生
 
 > English version: [README.md](./README.md)
